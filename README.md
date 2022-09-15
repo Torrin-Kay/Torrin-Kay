@@ -3,7 +3,7 @@
 High School Graduate (2017-2022)
 _Looking for traineeship/internship corporate experience._
 
-**Qualifications:**
+**Qualifications:** _Ascending Order_
   
     • Certificate I in Information Technology (2019)
     
