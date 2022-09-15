@@ -6,6 +6,8 @@ _Looking for traineeship/internship corporate experience._
 **Qualifications:**
   
     • Certificate I in Information Technology (2019)
+    
+    • Outsanding Performance Senior ICT (2022)
 
     • Diploma of ICT (Advanced Programming) (2023-2024)
 
